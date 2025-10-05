@@ -24,7 +24,7 @@ The big questions many of us in tech ask are:
 * *“Can AI actually help me earn passive money?”*
     
 
-As someone working in the digital space, I wanted answers. That’s why I decided to review the [**(PLR) ChatGPT 5 Mastery - Video Course**](https://bit.ly/3VW6sKO). It promised two things:
+As someone working in the digital space, I wanted answers. That’s why I decided to review the [**(PLR) ChatGPT 5 Mastery - Video Course**](https://digireviews.site/ChatGPT5Mastery). It promised two things:
 
 1. **Practical training** in prompt engineering for ChatGPT 5.
     
@@ -33,7 +33,7 @@ As someone working in the digital space, I wanted answers. That’s why I decide
 
 Was it worth it? Let’s break it down.
 
-## What Is the [(PLR) ChatGPT 5 Mastery Video Course](https://bit.ly/3VW6sKO)?
+## What Is the [(PLR) ChatGPT 5 Mastery Video Course](https://digireviews.site/ChatGPT5Mastery)?
 
 At its core, this is a **video-based training series** that covers:
 
@@ -46,11 +46,11 @@ At its core, this is a **video-based training series** that covers:
 * A **PLR license** so you can resell the course under your own brand.
     
 
-[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450576216/6c7bf917-b6d1-40a5-9caa-3e8ff6523212.png align="center")](https://bit.ly/3VW6sKO)
+[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450576216/6c7bf917-b6d1-40a5-9caa-3e8ff6523212.png align="center")](https://digireviews.site/ChatGPT5Mastery)
 
 It’s not just about learning AI—it’s about creating a digital asset for **static income**.
 
-👉 Explore full details here: [Check Out ChatGPT 5 Mastery](http://bit.ly/3VW6sKO)
+👉 Explore full details here: [Check Out ChatGPT 5 Mastery](https://digireviews.site/ChatGPT5Mastery)
 
 ## Why Prompt Engineering Matters in 2025
 
@@ -73,7 +73,7 @@ I dedicated two weeks to exploring the modules. Here’s what stood out:
 
 Using advanced prompt frameworks, I cut down writing and coding research time by 40%. What used to take me hours—like drafting outlines, generating code snippets, or creating email templates—took minutes.
 
-[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450613464/08e86d44-c13d-42fc-85aa-c330c7356309.png align="center")](https://bit.ly/3VW6sKO)
+[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450613464/08e86d44-c13d-42fc-85aa-c330c7356309.png align="center")](https://digireviews.site/ChatGPT5Mastery)
 
 ### 2\. Real-World Business Use Cases
 
@@ -92,7 +92,7 @@ These weren’t abstract—they were **plug-and-play solutions**.
 
 I rebranded the course, gave it a new title, and tested it in a private group. I got my first sale in a week. It wasn’t massive, but it proved the concept: a ready-made digital product can become a stream of **passive revenue** with minimal effort.
 
-👉 Imagine owning a product in the fastest-growing niche (AI). Start here: [Get Access Now](http://bit.ly/3VW6sKO)
+👉 Imagine owning a product in the fastest-growing niche (AI). Start here: [Get Access Now](https://digireviews.site/ChatGPT5Mastery)
 
 ## Strengths of the Course
 
@@ -114,7 +114,7 @@ I rebranded the course, gave it a new title, and tested it in a private group. I
 * Some hype in the sales pitch (“easy money”) that doesn’t reflect the effort required.
     
 
-[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450644292/03328ac7-725f-440d-8f50-2cf066a88ecb.png align="center")](https://bit.ly/3VW6sKO)
+[![](https://cdn.hashnode.com/res/hashnode/image/upload/v1758450644292/03328ac7-725f-440d-8f50-2cf066a88ecb.png align="center")](https://digireviews.site/ChatGPT5Mastery)
 
 ## Who Should Use This?
 
@@ -129,7 +129,7 @@ I rebranded the course, gave it a new title, and tested it in a private group. I
 * Anyone asking, *“How do I get rich with AI while building sustainable systems?”*
     
 
-👉 If that’s you, explore the course here: [ChatGPT 5 Mastery Course](http://bit.ly/3VW6sKO)
+👉 If that’s you, explore the course here: [ChatGPT 5 Mastery Course](https://digireviews.site/ChatGPT5Mastery)
 
 ## Case Studies and Applications
 
@@ -158,7 +158,7 @@ The course is priced competitively, especially given the **dual value**:
 
 Think of it this way: building your own AI video course would take months. Here, you get both knowledge and a product ready to go. Even one or two resales could cover the cost.
 
-👉 Learn more here: [See Pricing & Details](http://bit.ly/3VW6sKO)
+👉 Learn more here: [See Pricing & Details](https://digireviews.site/ChatGPT5Mastery)
 
 ## Bigger Picture: AI and Passive Income
 
@@ -168,7 +168,7 @@ The more I explored, the more I realized:
     
 * The true opportunity isn’t in quick wins—it’s in creating digital systems that keep working for you.
     
-* The [**(PLR) ChatGPT 5 Mastery Video Course**](https://bit.ly/3VW6sKO) is less about instant money and more about building **AI-driven leverage** for 2025 and beyond.
+* The [**(PLR) ChatGPT 5 Mastery Video Course**](https://digireviews.site/ChatGPT5Mastery) is less about instant money and more about building **AI-driven leverage** for 2025 and beyond.
     
 
 %[https://www.youtube.com/watch?v=JDm_VRuBeCM] 
@@ -184,4 +184,4 @@ After reviewing the course, here’s my bottom line:
 * **It’s timely.** AI adoption is accelerating in 2025, and this gives you a way to both learn and participate.
     
 
-👉 If you’re serious about AI and passive income, this course is worth considering: [Explore ChatGPT 5 Mastery](http://bit.ly/3VW6sKO)
+👉 If you’re serious about AI and passive income, this course is worth considering: [Explore ChatGPT 5 Mastery](https://digireviews.site/ChatGPT5Mastery)
